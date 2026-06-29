@@ -1,4 +1,4 @@
-#  
+#  welcome to bloxburg Scripts premium is the best welcome to bloxburg Script, featuring teleport and auto-heal. Safe and powerful for all your needs.
 
 
 
